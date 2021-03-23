@@ -1,5 +1,5 @@
 # Make-Spare-Bank-from-User-Interviews-a-Referral-List-which-I-will-Totally-Keep-Updated-TM-
-Make (Spare) Bank from User Interviews: a Referral List which I will Totally Keep Updated(TM) hopefully
+**Make (Spare) Bank from User Interviews: a Referral List which I will Totally Keep Updated(TM) -- hopefully**
 
 So a friend turned me on to User Interviews last year but I didn't really start applying regularly on it until the last month or so and uhhh I have $605 in user interviews booked for this week alone??? I mean it's not a living wage but it's way more than the coffee money I was aiming for.
 
