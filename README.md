@@ -1,4 +1,36 @@
 # Make-Spare-Bank-from-User-Interviews-a-Referral-List-which-I-will-Totally-Keep-Updated-TM-
+
+**NEW 3/23/2021:**
+New User Interviews opportunities today. Btw I DID figure out that, yes, their "Copy paste this link" function actually doesn't copy the right link like 75% of the time. So I went through this list and manually updated the survey tokens in the urls to reflect the correct ones. Let me know if you still hit any incorrect survey which doesn't map to the right name. I'll try to update with the new surveys every day. 
+
+Employee Clock In Feedback: https://www.userinterviews.com/projects/AOgfzMU0xA/apply?referral_code=S1BqV2hnc3p4S1ZyOHNnVzZoV051QW9yVVBzWXNITHBtN0JLVlYyZjhac0l1bDN1OEhTOFFuTHppMHRvN2NvcXBjc2sxUUMxNmo4YjZwd09qZ29jZFE9PS0tVXFPa3V2aHU4MjVzWG1mc1Vob0JrUT09--428e33f76d0df69b4ea70025b301f469e65a1f22 
+
+IT Decision Makers Study: https://www.userinterviews.com/projects/y-NI6VfQXg/apply?referral_code=S1BqV2hnc3p4S1ZyOHNnVzZoV051QW9yVVBzWXNITHBtN0JLVlYyZjhac0l1bDN1OEhTOFFuTHppMHRvN2NvcXBjc2sxUUMxNmo4YjZwd09qZ29jZFE9PS0tVXFPa3V2aHU4MjVzWG1mc1Vob0JrUT09--428e33f76d0df69b4ea70025b301f469e65a1f22 
+
+Looking for product feedback from data compliance, data protection, or securityops decision makers: https://www.userinterviews.com/projects/gJsKXVBhqg/apply?referral_code=S1BqV2hnc3p4S1ZyOHNnVzZoV051QW9yVVBzWXNITHBtN0JLVlYyZjhac0l1bDN1OEhTOFFuTHppMHRvN2NvcXBjc2sxUUMxNmo4YjZwd09qZ29jZFE9PS0tVXFPa3V2aHU4MjVzWG1mc1Vob0JrUT09--428e33f76d0df69b4ea70025b301f469e65a1f22 
+
+Power lines usability & clarity: https://www.userinterviews.com/projects/h09aRNlzTw/apply?referral_code=S1BqV2hnc3p4S1ZyOHNnVzZoV051QW9yVVBzWXNITHBtN0JLVlYyZjhac0l1bDN1OEhTOFFuTHppMHRvN2NvcXBjc2sxUUMxNmo4YjZwd09qZ29jZFE9PS0tVXFPa3V2aHU4MjVzWG1mc1Vob0JrUT09--428e33f76d0df69b4ea70025b301f469e65a1f22 
+
+Manufacturing expert interview I: https://www.userinterviews.com/projects/76jYIqpCsg/apply?referral_code=S1BqV2hnc3p4S1ZyOHNnVzZoV051QW9yVVBzWXNITHBtN0JLVlYyZjhac0l1bDN1OEhTOFFuTHppMHRvN2NvcXBjc2sxUUMxNmo4YjZwd09qZ29jZFE9PS0tVXFPa3V2aHU4MjVzWG1mc1Vob0JrUT09--428e33f76d0df69b4ea70025b301f469e65a1f22 
+
+Organizational study of freelancers and small business owners: https://www.userinterviews.com/projects/_BzSnTYFXA/apply?referral_code=K2swQWVvbEVMWW5qNDduNDhlMlh2ckllRndkMHZETEsxMHNTQzA1Nnhhemx5elpwOWtrSXFlU2QyWmlyeEVDZkxaMkZSN1VuWDdjeUFCbUZVTGhldFE9PS0tRU8ydFB1VHJxcmQyQS9pbGNnVmRJdz09--dcb05e9e0b4a8054781eddc8e2a2a5bfe7ada4d1 
+
+Reshaping the Investment Experience: https://www.userinterviews.com/projects/AoNzhEMTXA/apply?referral_code=K2swQWVvbEVMWW5qNDduNDhlMlh2ckllRndkMHZETEsxMHNTQzA1Nnhhemx5elpwOWtrSXFlU2QyWmlyeEVDZkxaMkZSN1VuWDdjeUFCbUZVTGhldFE9PS0tRU8ydFB1VHJxcmQyQS9pbGNnVmRJdz09--dcb05e9e0b4a8054781eddc8e2a2a5bfe7ada4d1 
+
+Python Web Developers Interview with JETBrains: https://www.userinterviews.com/projects/z1-UOTYsGw/apply?referral_code=K2swQWVvbEVMWW5qNDduNDhlMlh2ckllRndkMHZETEsxMHNTQzA1Nnhhemx5elpwOWtrSXFlU2QyWmlyeEVDZkxaMkZSN1VuWDdjeUFCbUZVTGhldFE9PS0tRU8ydFB1VHJxcmQyQS9pbGNnVmRJdz09--dcb05e9e0b4a8054781eddc8e2a2a5bfe7ada4d1 
+
+Software Professionals - User Research: https://www.userinterviews.com/projects/f7fCEhVNDg/apply?referral_code=K2swQWVvbEVMWW5qNDduNDhlMlh2ckllRndkMHZETEsxMHNTQzA1Nnhhemx5elpwOWtrSXFlU2QyWmlyeEVDZkxaMkZSN1VuWDdjeUFCbUZVTGhldFE9PS0tRU8ydFB1VHJxcmQyQS9pbGNnVmRJdz09--dcb05e9e0b4a8054781eddc8e2a2a5bfe7ada4d1 
+
+Talent and Recruiting - Research Study: https://www.userinterviews.com/projects/_tPlXPOV1g/apply?referral_code=K2swQWVvbEVMWW5qNDduNDhlMlh2ckllRndkMHZETEsxMHNTQzA1Nnhhemx5elpwOWtrSXFlU2QyWmlyeEVDZkxaMkZSN1VuWDdjeUFCbUZVTGhldFE9PS0tRU8ydFB1VHJxcmQyQS9pbGNnVmRJdz09--dcb05e9e0b4a8054781eddc8e2a2a5bfe7ada4d1 
+
+Running a database in Kubernetes? We'd love to hear from you! https://www.userinterviews.com/projects/E3GGd2HHRA/apply?referral_code=c0VQeGRGVzFOd2o5Y0ZXN2F1U2dmRGRqZzgvS1RTbmtYSHRnN0tudkFKeUZ3QlVQb2ZSczdiYkNNUFVTMzRuWGlCNWVpNVU0dzMvL0JaZFBkUnFaZ1E9PS0tdjRXb0VSWTlzbTJFYXgydFRRSklWdz09--7ab96ccc12b4115df77766652611be0bb62b6ff9 
+
+Data Engineering user research study: https://www.userinterviews.com/projects/_OfOv9-hdQ/apply?referral_code=c0VQeGRGVzFOd2o5Y0ZXN2F1U2dmRGRqZzgvS1RTbmtYSHRnN0tudkFKeUZ3QlVQb2ZSczdiYkNNUFVTMzRuWGlCNWVpNVU0dzMvL0JaZFBkUnFaZ1E9PS0tdjRXb0VSWTlzbTJFYXgydFRRSklWdz09--7ab96ccc12b4115df77766652611be0bb62b6ff9 
+
+Software Evaluation User Research Study: https://www.userinterviews.com/projects/USRxDZasUg/apply?referral_code=c0VQeGRGVzFOd2o5Y0ZXN2F1U2dmRGRqZzgvS1RTbmtYSHRnN0tudkFKeUZ3QlVQb2ZSczdiYkNNUFVTMzRuWGlCNWVpNVU0dzMvL0JaZFBkUnFaZ1E9PS0tdjRXb0VSWTlzbTJFYXgydFRRSklWdz09--7ab96ccc12b4115df77766652611be0bb62b6ff9 
+
+Marketer Feedback: https://www.userinterviews.com/projects/Gyy1csBrag/apply?referral_code=c0VQeGRGVzFOd2o5Y0ZXN2F1U2dmRGRqZzgvS1RTbmtYSHRnN0tudkFKeUZ3QlVQb2ZSczdiYkNNUFVTMzRuWGlCNWVpNVU0dzMvL0JaZFBkUnFaZ1E9PS0tdjRXb0VSWTlzbTJFYXgydFRRSklWdz09--7ab96ccc12b4115df77766652611be0bb62b6ff9
+
 **Make (Spare) Bank from User Interviews: a Referral List which I will Totally Keep Updated(TM) -- hopefully**
 
 So a friend turned me on to User Interviews last year but I didn't really start applying regularly on it until the last month or so and uhhh I have $605 in user interviews booked for this week alone??? I mean it's not a living wage but it's way more than the coffee money I was aiming for.
