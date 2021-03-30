@@ -1,4 +1,19 @@
 # Make-Spare-Bank-from-User-Interviews-a-Referral-List-which-I-will-Totally-Keep-Updated-TM-
+**NEW 3/29/2021:**
+($100) Marketing Communication Research: https://www.userinterviews.com/projects/IW6S0oon9Q/apply?referral_code=L1k3b1c5ay9YSG13c2JNcEhoVEM2T0RqMHNxcWhKRmwzN2hsSDI4S1dXUlR3cHBwcngwLzk5aStUSmpFaHNLYUFOOHZRZ0xqU3JsVWVtZzNhSW1Zenc9PS0tc1ZwWTQ2L294SzhMeDVFK1FQSkJIUT09--73d1c3312829173ed59b9c32a538e529bf3f2243
+
+($150) Previous work experience at real estate crowdfunding company:
+https://www.userinterviews.com/projects/33stMMNGYw/apply?referral_code=cG1VY1BLZTJnSG9mdXNKa2dOcUdOSkN1WTQ2TEY0WWtpRk5qRys2bFkxNE1QSUhrU0VLeXJad3NoME1IYlA1eWZHeE1VNkk0SysrdS9TRHFkNlJodmc9PS0tVXdSMVM2NTJsSURsaEFNQjdnWGVNZz09--a929d77ae871cb902ac5803a6324617660ecbceb
+
+($80) Engineering and product management study:
+https://www.userinterviews.com/projects/BPchUPGkqA/apply?referral_code=Q3VYM3ZibWdOZjVYckVZb3ZpRStad0xzcFVyMXd4NlM0Z2QxMjFMbnM3eXdCN2JZM0dpTmM4cU1NSGZEVmR5THNiSVpNUDNlcFlsV0d5bzJsM204Umc9PS0tWEE4Y1hQZDA0UnJjbm0zUE42OXF3QT09--5be02848ca0e8e94c041f7aa11c2f5df0633486e
+
+($100) Driver coaching research: https://www.userinterviews.com/projects/NS8qla-8sA/apply?referral_code=K2RlTUJZUEJhaDFld2Q3d0IrSUVEWHc5Q0xYQzFxTnowTjBEMlB6Z1V5S1o1cVlWN2d4WkNIcGkrRHg4Y3dhUkNHUHowZHdZeVo1cU4xMlZKTlFOQ1E9PS0tRkxHNFNhYjcyYkRzZytDdU5sc01wUT09--8bb7b6dec001306541d3270abd73361378430847
+
+($40) Leveraging inclusion to maintain a competitive advantage: https://www.userinterviews.com/projects/Al1t6nWZrQ/apply?referral_code=Mm1sRFFVYzlGZXBvWWtOc2J6WXl0MmQ0QWh1TUJLNk5ZdTN6VE8zeURWM1FjSW0xaFB4RlJsMkhmYndMOXpRbDVJUXR0RlQwZnNmL0FoOUFRNkVSdHc9PS0tUUtWNnZ6YU5FM1B2NUtPT1VUVUk4dz09--e69155be8cdfa04577e10f2ff97cebbf718bf9a1
+
+($100) Looking for operations manager in construction: https://www.userinterviews.com/projects/FDDap7lmGw/apply?referral_code=K2kwanl3WGtvcXQwYytaMmFPVXM3Qk1pV04wQVRremd5eEtsZkZQdkdYNW9tOGhGTzlvTnduZklPN3BpRDc5M0IwUGRzZGFISVlWaEtIV0VlOHBna3c9PS0ta3NlSGhweE1hbzJJUm1IVmtzZGNtZz09--07f3d614560a89cc695ec161f290591c8c2b7daf
+
 
 **NEW 3/27/2021:**
 Interview Vervoe users: https://www.userinterviews.com/projects/utKOvn781Q/apply?referral_code=ZStTRy9nTG5IbUlZRC9EeFRLcWEwNHcxTk9sV2RKcFVUenNtUEVxZnVCWXQ3TXg2N2kvR0pjUEN0b0UwVTA0YkVWcE9GME9WdzNBOUo4VkVORncwNkE9PS0tZGRZazQ4MisyL0plcFJoeGlGRS9zZz09--dfa605958c91a2623cf72938583b8df16d16f66c
@@ -8,6 +23,34 @@ https://www.userinterviews.com/projects/koeT-k-ZXw/apply?referral_code=M05lSVhQU
 
 Simplified Web Security Management User Interview:
 https://www.userinterviews.com/projects/l_HxHS_hyg/apply?referral_code=dlQ3VTFwamZIUk9mRzNDNXB0N1hEaDkyNDIxM0w2eDN3N3VudWNSRFcrakYyQ2FNNFE1WlMySStiMFd6NGV0cDJ5Z1l6ZTRZVEZ2emdxZEhaYnViNEE9PS0tNlZacTIyTnl4ZlFlNUxYWHorUmJTZz09--f47248b6137ce4617181ab85da954c266e0bf651
+
+($200) Seeking Innovacer In-Note users: https://www.userinterviews.com/projects/0xraSCf6ww/apply?referral_code=cGVPR3Q0SFF3clBXbWRNdEhlbytFWnZxemh5b2RFNnJSSHRaZHAwcW96eVBwZStWRnNieFpab2tka0tsd1UrMTVEeVZROWUrNHRDYXE0NGhIcFBXQXc9PS0tSlRoaThFbTNTTlZRUG9iSGtHeEs5Zz09--a337f3b43c6e599663e589bf34c8ed6bf5751b96
+
+($60) Home improvements study: https://www.userinterviews.com/projects/lFhfJxT19g/apply?referral_code=MUpqL25kUEtKRU15ZGJEVGRUNVE0YjR6NWw3OHk5YWdBelBwcEpKeTRaTjRHd01QMXpVaWl6NDZDRndKVVhVVDdMNFVaTTlWU0l5Ykk4NkFMZSs2K2c9PS0tc0ZyU3Q3QXU0dHNXMDdlWEI4SFh4QT09--2d9948abd0d7a556539337f10f1168c2acc01e37
+
+($100) Software professionals research study:
+https://www.userinterviews.com/projects/yxtr3FYohg/apply?referral_code=VFIzMFhTQTJSZXM3dnRiYW5SamFNYU5kWDBqczJZTWw2UTV4YTFFWjNkVWIzRE9yT3ZrS0g5NkdRRCtEZk1ud2Z1MzhjNWhTZmhmSTc3ODhtcDRncXc9PS0tcUllNm94UWMvVjhYc0Rjb2U0ZWlxQT09--c1934aa68bd4fb5a57dab2d584a34a8ad616f7d3
+
+($100) Seeking accounts receivables manager or cash application specialists: https://www.userinterviews.com/projects/3aLIOx-YqA/apply?referral_code=enF6Q0F5UVZQbm5ob0hZb3BVd2xyRUw1aEE1MXAyVmpIRllwaXB2ZUo5VnBTUno2djRSV3UvWDAzamRlaHJsYm5CMU5vV0lsWDlNMWM3S1BNdEhkcFE9PS0tNk44MGFkeUNPakl6TW5MZG1UcXJyUT09--f4110d4715e7ba529b9103f086bb882a79721348
+
+($100) UX research for a tech product. Ideal for backend devs, fullstack devs, devops, etc: https://www.userinterviews.com/projects/a3BAGWHxMA/apply?referral_code=TUgwMWU3K3RRSGRyKzVZRHhKbEpqeDBoUDBra0U2MGQxS1pFTUFxeEl2ZzI0Z0ZRVFc3Q0Y1aFlSVVlhR1FlYURlMkJYNE03a0k0SWhRdDc0bk54R1E9PS0td2p2R2xyc0huR21FWk1qa3F5QUY5dz09--a938e37c0157e60fdbfdc86fd8bd2ea3cfd1857c
+
+($10) People who work in facilities, business operations, purchasing/procurement, site management, operations management for a study: https://www.userinterviews.com/projects/9a6-vd-TGg/apply?referral_code=R3Vpc0V4bE1pK0VPbWZYanRxeGtKaFRDdk52TTUrSzZIdWFYb043bGN4b1ZDelZlT1dKaFhaR3NhOHc3Z1Vic3phejdVY09hSS9qcHVWSUxWdk5KSWc9PS0tQkxlUFhuOEtXL0prdWNLdFhEVGV1QT09--9242a07d56f06ab8b5e2cd7b4340ddc2f0cacd95
+
+($75) Serving users who consume application/services from 3rd party vendor on the cloud: https://www.userinterviews.com/projects/_f9pmPr0eA/apply?referral_code=TkNtd3o3dm5nSzVadlhYYWNJSVpieFZPTjkyUWM4TFpkc1paVG9SUDRuNUZHRVQ3Nm9kWlRhdUIwdzhYWTQyVGdONW54Q3dtSHVTMjdRMmFDT1hpeFE9PS0tMjlEYkc5M2JSeXExMDdPejIrZ2cvQT09--d05349e9a856c515f876bf892cc0a7f937039041
+
+($45) Light industrial workers research study -- searching and applying to jobs:
+https://www.userinterviews.com/projects/C9TYVIpHxw/apply?referral_code=OW9DZlBNSjhuUm9KYmN0SXp1TFYrclJMaG1kU2MrcDBWd3AzTFlxZ1pOVkt6U0kxaHpFNjBPZVNtblRwQVlWRVlaVXZEZVU5NFRtNzRuRld2L0hzYUE9PS0tZ3lPcngvc1ppK3FIdnQ5Q2o4enpjUT09--9ddb3ca6154fc9c11f081ef49985c3d9f404237f
+
+($100) Testing software product concepts: https://www.userinterviews.com/projects/ejulNohHRw/apply?referral_code=NVlEM0lFQ1VRTW9uUkkyTm52UGVPdHJPdFBUVUhxeCtNQ3ZvcmFBRTNUdzZSWGhPVHVXNDM4VEZCZDFyR0NlQ3h1QlhMVTBraW5FS0xXaCtmajRTdUE9PS0td1laOHR3elhDcWJDMVlvYVc5OXZkdz09--2be9bdfdad7be530b07aac7845f5e74a25786bda
+
+($50) Medical device user interface feedback: https://www.userinterviews.com/projects/lzGcT7Ni6w/apply?referral_code=VjN3bWlTK1pxTURCZkpBOE5MT1lSZS9EekJIUWpNNFgrN0x2dkNRSHpOUzBobE1zeW9SV1pjRUx6VnBzajIwZmJnMFNvTjhGTXVKdHo1RHI0SFIrMXc9PS0tR3pQSU55bzlsVXJCYzByUTB2OVVnZz09--1029025260f621140399c785e35c03dc5a1e314a
+
+($80) Marketing campaign research:
+https://www.userinterviews.com/projects/sSjdF32-fw/apply?referral_code=aS9HL01BSFNmRm11YkZia2l4OEZjejExQ09tdDl6NExTNzhSR2xCQ3hZY3N6a1lFSVR3MFA3L0J4ODdWMmFSZmVROGcrRHhlUTZSdEpydyt0akNkT1E9PS0tZHZKQlRkNFNZS3pqd0dBS3NEbEpjZz09--9a0e9968de6556e75bb94910f03d651934248be1
+
+($60) People working in the following jobs for a study -- purchasing, IT, Sales, customer service, bookkeeper/clerk, wealth management, financial planning, treasury, supply chain ops, operations:
+https://www.userinterviews.com/projects/ynN2SfNCCA/apply?referral_code=UDBMQXExTnVNSEkyZjJqd3VzcGh0WUttVyt3Rkk0QTJ5aUFuQ0VkZU9ORW54aEtmbjBnZkgybThDRTczMk9oTmRsVlUvcjVGRXFaTDJiWGF6RjFkQnc9PS0tL0Z5VVFqT01USVcxSGRvRlpXYktzQT09--28a96aea780317d58a8e1b3f0a54758f95395bbb
 
 **NEW 3/26/2021:**
 Alright lit so it appears UserInterviews has fixed the bug I reported about it not always generating the correct referral URL. Let me know if you still run into any issues though.
